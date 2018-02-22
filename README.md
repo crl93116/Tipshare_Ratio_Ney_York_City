@@ -1,0 +1,1 @@
+# Tipshare_Ratio_Ney_York_City
